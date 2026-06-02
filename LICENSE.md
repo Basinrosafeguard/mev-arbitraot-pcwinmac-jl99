@@ -1,4 +1,4 @@
-# 
+# Mejor MEV arbitrage bot flujo de trabajo para Mac OS | Inteligente MEV arbitrage bot flujo de trabajo para PC Windows. Con ejecución de paquetes y estrategias de back-running — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
